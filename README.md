@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on with great company.
 - 📫 How to reach me Viber, Telegram: +380 68 532 58 81. Instagram: andrew_20o4.
 - [TikTok](https://www.tiktok.com/@andrew._.1503)
+- [Instagram](https://www.instagram.com/andrew_20o4/)
 
 <!---
 AndrewHypster/AndrewHypster is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
